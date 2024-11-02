@@ -12,7 +12,7 @@ ______
 
 n站链接:
 
-普清https://www.nicovideo.jp/watch/sm4988728
+普清https://sp.nicovideo.jp/watch/sm4988728
 
 睾清https://sp.niconico.jp/watch/sm35948404
 
@@ -69,10 +69,44 @@ _______
 n站链接:
 https://sp.nicovideo.jp/watch/sm5506735
 ________
-7.*开头
+7.*Can-Am Productions Present开头
 
 n站链接:
 https://sp.nicovideo.jp/watch/sm4987813
 
 mfuns链接:
 https://www.mfuns.net/video/40709
+________
+8.王vs木吉(前半)
+
+n站链接:
+
+普清
+https://sp.nicovideo.jp/watch/sm4845727
+
+睾清
+https://sp.nicovideo.jp/watch/sm36186763
+
+mfans链接:
+
+普清
+https://www.mfuns.net/video/32806
+睾清
+https://www.mfuns.net/video/37916
+天满宫字幕组
+https://www.mfuns.net/video/40973
+______
+9.*王VS木吉(后半)
+
+n站链接
+https://sp.nicovideo.jp/watch/sm4844632
+_______
+10.*王VS吾作(前半)
+
+n站链接
+https://sp.nicovideo.jp/watch/sm5576817
+________
+11.*王VS吾作(后半)
+
+n站链接
+https://sp.nicovideo.jp/watch/sm5245806
