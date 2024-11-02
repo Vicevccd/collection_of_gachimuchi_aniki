@@ -12,7 +12,7 @@ ______
 
 n站链接:
 
-普清https://sp.nicovideo.jp/watch/sm4988728
+普清https://www.nicovideo.jp/watch/sm4988728
 
 睾清https://sp.niconico.jp/watch/sm35948404
 
