@@ -119,5 +119,5 @@ n站链接:
 https://sp.nicovideo.jp/watch/sm8475381
 
 b站睾清链接:
-https://www.bilibili.com/videoBV1kH4y157hQ
-https://www.bilibili.com/videoBV1Vm411r7Rv
+https://www.bilibili.com/video/BV1kH4y157hQ
+https://www.bilibili.com/video/BV1Vm411r7Rv
