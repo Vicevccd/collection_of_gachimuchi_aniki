@@ -1,6 +1,11 @@
 # collection_of_gachimuchi_aniki
 # 为了弘扬哲♂学文化，让新人能够更好地了解哲♂学，下方是哲学本編链接跳转，可方便食用，不定时补全
 ___________
+首先是van恶之源:https://www.nicovideo.jp/watch/sm1175788(哲♂学的开始)
+
+这个世界太♂乱、奥♂义很爽和神の救济出处
+
+b站幸存的n站弹幕版https://www.bilibili.com/video/BV1Ux411B7co(会员世界)
 ___________
 _______
 _______
@@ -8,7 +13,7 @@ _______
 茎典①:*****更衣室大战本篇
 ______
 ______
-1.*vanVS魔男(前半)
+1.*vanVS魔男(前半)，fa乐器和wu乐器出处
 
 n站链接:
 
@@ -24,7 +29,7 @@ mfuns链接:
 
 天满宫字幕组https://www.mfuns.net/video/41970
 _______
-2.*vanVS魔男(后半)
+2.*vanVS魔男(后半)，哲♂学演♂奏家出处
 
 n站链接:
 
@@ -35,7 +40,7 @@ mfuns链接：
 
 普清https://www.mfuns.net/video/40581
 _______
-3.*王vs城之内悠二(前半)
+3.*王vs城之内悠二(前半)，易♂建联出处
 
 n站链接:
 
@@ -107,7 +112,7 @@ ______
 n站链接
 https://sp.nicovideo.jp/watch/sm4844632
 _______
-10.*王VS吾作(前半)
+10.*王VS吾作(前半)，王の盛邀，我的房♂租哎出处
 
 n站链接
 https://sp.nicovideo.jp/watch/sm5576817
@@ -134,7 +139,7 @@ b站睾清链接:
 https://www.bilibili.com/video/BV1kH4y157hQ
 https://www.bilibili.com/video/BV1Vm411r7Rv
 ________
-2.*力之金阁
+2.*力之金阁，勾♂股定理
 
 n站链接:
 https://sp.nicovideo.jp/watch/sm14483345
@@ -158,7 +163,7 @@ ________
 n站链接:
 https://sp.nicovideo.jp/watch/sm14520778
 _________
-4.*守之铁阁:
+4.*守之铁阁，梅♂早期作品
 
 n站链接:
 https://sp.nicovideo.jp/watch/sm14623706
@@ -169,7 +174,7 @@ https://www.mfuns.net/video/6665
 (幸存)b站链接(不完整):
 https://www.bilibili.com/video/BV1CW411v7gH
 _______
-番外:***香蕉君魅舞
+番外:***香蕉君魅舞，尻♂比早期作品
 
 *预告:
 
@@ -189,7 +194,7 @@ ______
 
 n站链接:
 
-平家boy处♂刑編:
+平家boy处♂刑編，马凯惨叫，平家boy空耳出处:
 https://sp.nicovideo.jp/watch/sm5131362
 
 平家boy决♂斗編:
@@ -198,7 +203,7 @@ https://sp.nicovideo.jp/watch/sm11993520
 人体手♂柄+平家boy反♂叛編(不全):
 https://sp.nicovideo.jp/watch/sm5648023
 
-平家boy反♂叛編(完全版):
+平家boy反♂叛編(完全版)来一起拉大♂便空耳出处:
 https://sp.nicovideo.jp/watch/sm13283091
 
 金阁抽真空編(沙♂县出处):
