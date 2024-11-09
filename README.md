@@ -111,6 +111,9 @@ _______
 
 n站链接
 https://sp.nicovideo.jp/watch/sm5576817
+
+mfuns链接:
+https://www.mfuns.net/video/43154
 ________
 11.*王VS吾作(后半)
 
@@ -162,6 +165,9 @@ https://sp.nicovideo.jp/watch/sm14623706
 
 m站链接:
 https://www.mfuns.net/video/6665
+
+(幸存)b站链接(不完整):
+https://www.bilibili.com/video/BV1CW411v79H
 _______
 番外:***香蕉君魅舞
 
@@ -194,6 +200,12 @@ https://sp.nicovideo.jp/watch/sm5648023
 
 平家boy反♂叛編(完全版):
 https://sp.nicovideo.jp/watch/sm13283091
+
+金阁抽真空編(沙♂县出处):
+https://sp.nicovideo.jp/watch/sm8897808
+
+金阁抽真空編(渣画质):
+https://sp.nicovideo.jp/watch/sm7142565
 
 mfuns链接:
 
