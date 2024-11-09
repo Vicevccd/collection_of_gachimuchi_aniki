@@ -1,11 +1,11 @@
 # collection_of_gachimuchi_aniki
 # 为了弘扬哲♂学文化，让新人能够更好地了解哲♂学，下方是哲学本編链接跳转，可方便食用，不定时补全
 ___________
-首先是van恶之源:https://www.nicovideo.jp/watch/sm1175788(哲♂学的开始)
+首先是van恶之源:https://www.nicovideo.jp/watch/sm1175788 (哲♂学的开始)
 
 这个世界太♂乱、奥♂义很爽和神の救济出处
 
-b站幸存的n站弹幕版https://www.bilibili.com/video/BV1Ux411B7co(会员世界)
+b站幸存的n站弹幕版https://www.bilibili.com/video/BV1Ux411B7co (会员世界)
 ___________
 _______
 _______
